@@ -1,1 +1,1 @@
-# BIOS_Update_Dell_Dev
+# Do not use it if you're not in contact for now :-)
